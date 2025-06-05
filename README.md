@@ -12,3 +12,6 @@ hackerhuda.com
 
 pwlf]v;v/ eevveveve.  find.com 
 damn.com
+
+<a href=https://hackeroneass.com>cloic</a>
+jeweeeef.com
