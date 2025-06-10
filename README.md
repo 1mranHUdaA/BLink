@@ -10,7 +10,7 @@ https://efuififfefeji.com
 
 https://jaibona.com
 hackerhuda.com
-<script src=hackmebabysss.com>test</script?
+<script src=hackmebabysss.com>test</script>
   <iframe src=https://hackerhudassa.com>
 
 pwlf]v;v/ eevveveve.  find.com 
