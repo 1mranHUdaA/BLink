@@ -9,6 +9,8 @@ https://facebook.com/HackWhite/
 https://efuififfefeji.com
 
 https://jaibona.com
+jefijf@defensiiee.com
+jejf@blahbssslah.com
 hackerhuda.com
 <script src=https://hackmebabysss.com>test</script>
   <iframe src=https://hackerhudassa.com ></iframe>
