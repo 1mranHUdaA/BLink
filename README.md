@@ -17,7 +17,7 @@ hackerhuda.com
 <script src=https://evalsssssssss.com>test</script>
   <iframe src=https://hackerhudassa.github.com ></iframe>
 
-  <script src=imran.imranisnotfool.com>click</script>
+  <script src=https://imran.imranisnotfool.com>click</script>
 imranhudaeefef@gmail.com
 pwlf]v;v/ eevveveve.  find.com 
 damn.com
